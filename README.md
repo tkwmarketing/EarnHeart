@@ -1,2 +1,2 @@
 # EarnHeart
-Value Exchange Trust
+The Civics Exchange Trust.
